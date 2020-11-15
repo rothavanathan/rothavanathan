@@ -1,4 +1,4 @@
-![Romesh in the Studio](img/Romeshinthetinykingdom-2.jpg)
+![Romesh in the Studio](img/Romeshinthetinykingdom-b&w.jpg)
 
 ## Hey. I'm Romesh.
 
