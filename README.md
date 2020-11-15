@@ -1,3 +1,5 @@
+![Romesh in the Studio](./Romeshinthetinykingdom-2.jpg)
+
 ## Hey. I'm Romesh.
 
 I used to play in a band called **Hey Rosetta!** We spent a decade making a lot of music and sharing it with people around the world. Now I'm a developer so I can keep making things to share with people around the world but I don't have to live in a van hurtling down the highway.
